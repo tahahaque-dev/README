@@ -16,7 +16,7 @@ Some of my skills include:
 - Understanding of Chemistry and Physics
 
 ## Career Goals
-Being an AVgeek or Aviation Enthusiast, I hope to be involved some occupation with or around aircraft.
+Being an AVgeek or Aviation Enthusiast, I hope to be involved some occupation with or around aircraft. This can include engine development, material sourcing, and aircraft design! I currently am on pace to enter the University of Washington's ENGRUD or Engineering Undeclared program where from there on I will be given a major to study!
 
 
 
